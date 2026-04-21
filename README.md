@@ -4,4 +4,4 @@ f
 REW
 SD
 S
-FSZ
+FS
