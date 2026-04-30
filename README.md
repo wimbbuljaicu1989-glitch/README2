@@ -1,15 +1,3 @@
 GDFGFDG
 c
-fads
-REWhk
-sd
-Sjfdssl
-FSsjk
-fedjs
-shjdkdsd
-GFd
-cxdljl
-FDdsgs
-sdrdf
-s
-s
+bfd
